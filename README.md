@@ -4,5 +4,12 @@
   <img src="starter-nextra-nextjs-docs.png" alt="nextra and docs">
 </p>
 
-[Edit on StackBlitz ⚡️](https://stackblitz.com/edit/nextra-2-docs-udpmhc)
-- https://nextra.site
+Hi,
+
+Are you bought Luxiren React Template?
+
+If yes please refund and here’s the link https://bit.ly/3wdzB7v
+
+
+
+Thanks and Regards.
